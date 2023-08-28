@@ -1,3 +1,3 @@
 ### HEYO 👋
 
-I'm Jakub, and I pass butter
+I'm Jake, and I pass butter
